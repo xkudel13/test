@@ -1,7 +1,6 @@
 # test
 adding new repository
-
-zkouska, absolutne nevim
+zkouska, absolutne nevimedeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 jak tento readme pojede
 * mozna
 * ne
